@@ -29,7 +29,3 @@ Inspired by the original Incredibox game and crafted with a festive twist, this 
 
 ## Conclusion of Incredibox Scrunkly  
 **Incredibox Scrunkly** is more than just a game—it’s a celebration of music, creativity, and holiday spirit. Whether you’re making music with friends or enjoying solo fun, this game is your go-to for festive entertainment. Start your musical adventure today and see why **Incredibox Scrunkly** is the holiday hit everyone’s talking about! 🎶✨  
-
-【URL 已修改至新的网址】 
-
-如果需要，我可以保存这些更改并提供下载链接！
